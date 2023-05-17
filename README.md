@@ -12,7 +12,7 @@ I have a passion for learning new technologies as they help built the tools I ha
 
 https://www.linkedin.com/in/hennie-scheepers-8369b1246/
 
-**Email :**
+Email :
 
 hennie.104@hotmail.com
 
