@@ -8,14 +8,14 @@ I have a passion for learning new technologies as they help built the tools I ha
 
 **You can find me on the following platforms:** 
 
-**LinkedIn: **
+LinkedIn :
 
 https://www.linkedin.com/in/hennie-scheepers-8369b1246/
 
-**Email:**
+Email :
 
 hennie.104@hotmail.com
 
-**Website: **
+Website: 
 
 https://henniescheepers.github.io/Final-Resume/
