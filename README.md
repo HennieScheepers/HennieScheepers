@@ -6,7 +6,7 @@ I am currently learning software development at CodeSpace Academy. It focuses he
 
 I have a passion for learning new technologies as they help built the tools I have at my disposal to come up with creative solutions to the problems we face in the world today 📚
 
-**You can find me on the following platforms:** 
+**You can find me on the following platforms:
 
 LinkedIn: 
 
