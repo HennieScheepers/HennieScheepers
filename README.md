@@ -14,6 +14,4 @@ I have a passion for learning new technologies as they help built the tools I ha
 - [Website](https://henniescheepers.github.io/Final-Resume/)
 <br>
 
-- Email:
-<br>
-hennie.104@hotmail.com
+- Email: hennie.104@hotmail.com
