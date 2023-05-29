@@ -12,10 +12,10 @@ I have a passion for learning new technologies as they help built the tools I ha
 <br>
 https://www.linkedin.com/in/hennie-scheepers-8369b1246/
 
-Email:
-<br>
-hennie.104@hotmail.com
-
 [Website](https://henniescheepers.github.io/Final-Resume/):
 <br>
 https://henniescheepers.github.io/Final-Resume/
+
+Email:
+<br>
+hennie.104@hotmail.com
