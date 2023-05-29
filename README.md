@@ -10,11 +10,9 @@ I have a passion for learning new technologies as they help built the tools I ha
 
 [LinkedIn](https://www.linkedin.com/in/hennie-scheepers-8369b1246/):
 <br>
-https://www.linkedin.com/in/hennie-scheepers-8369b1246/
 
 [Website](https://henniescheepers.github.io/Final-Resume/):
 <br>
-https://henniescheepers.github.io/Final-Resume/
 
 Email:
 <br>
